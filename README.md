@@ -1,6 +1,6 @@
 # Kiosco25hs
 
-![capibara_caracteristicas_habitat_y_alimentacion_4037_orig](https://github.com/MilenaOriginal/Kiosco25hs/assets/101562837/51029553-af6f-4f11-b3b8-14deffbefe2f)
+![2-3](https://github.com/MilenaOriginal/Kiosco25hs/assets/101562837/70c7b0ef-5e8b-4117-bd2c-6d2b9a0eef84)
 
 
 Integrantes del Grupo:
