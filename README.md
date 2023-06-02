@@ -6,7 +6,7 @@
 Integrantes del Grupo:
 Montenegro Milena (Master),
  Mitre Oyola Axel (Owner),
- Mangialavore Valentin,
- Rojas Tobi,
- Villa nueva Juan.
+ Mangialavore Francisco,
+ Rojas Tobias,
+ Villanueva Juan.
 
