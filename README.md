@@ -1,6 +1,7 @@
 # Kiosco25hs
 
-![2-3](https://github.com/MilenaOriginal/Kiosco25hs/assets/101562837/70c7b0ef-5e8b-4117-bd2c-6d2b9a0eef84)
+![m](https://github.com/MilenaOriginal/Kiosco25hs/assets/101562837/7f015bd0-5090-4006-9a5b-f74074b80084)
+
 
 
 Integrantes del Grupo:
